@@ -1,1 +1,1 @@
-<h1> Nynaeve al \' Meara
+<h1> Nynaeve al\'Meara
