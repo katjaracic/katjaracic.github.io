@@ -14,3 +14,7 @@ By marrying Lan Mandragoran, she also becomes Queen of Malkier.
 * prone to second-guess herself
 * often pulls her braid to vent her anger
 
+## Quote
+
+> I do not have to make sense.
+
