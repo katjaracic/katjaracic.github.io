@@ -18,3 +18,5 @@ By marrying Lan Mandragoran, she also becomes Queen of Malkier.
 
 > I do not have to make sense.
 
+<img src="https://vignette.wikia.nocookie.net/wot/images/0/09/Wot-_nynaeve.jpg/revision/latest?cb=20160605154102"/>
+
